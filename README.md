@@ -1,5 +1,7 @@
 <div align="center">
   
+global safe #1 or #2 only
+  
 <details>
   <summary>about me</summary><br>
   
