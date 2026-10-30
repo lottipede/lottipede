@@ -1,7 +1,8 @@
 <div align="center">
-  
-global safe #1 or #2 only
-  
+
+  i havent went by kyi in years but people still call me it<br>
+  call me it if you'd like but i heavily prefer koma, ok?
+  <br>  
 <details>
   <summary>about me</summary><br>
   
