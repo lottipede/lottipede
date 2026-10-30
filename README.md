@@ -1,7 +1,5 @@
 <div align="center">
 
-  i go by a lot of names but i prefer koma
-  <br>  
 <details>
   <summary>about me</summary><br>
   
