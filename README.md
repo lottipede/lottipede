@@ -1,7 +1,7 @@
 <div align="center">
 
   i havent went by kyi in years but people still call me it<br>
-  call me it if you'd like but i heavily prefer koma, ok?
+  call me it if you'd like but i prefer koma #desensitizing
   <br>  
 <details>
   <summary>about me</summary><br>
