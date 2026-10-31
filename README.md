@@ -1,5 +1,7 @@
 <div align="center">
 
+![](https://file.garden/aVv63DlleiJPIk3x/pixel3)
+
 <details>
   <summary>about me</summary><br>
   
