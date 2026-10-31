@@ -1,7 +1,7 @@
 <div align="center">
-
-![](https://file.garden/aVv63DlleiJPIk3x/pixel3)
-
+  
+![](https://file.garden/aVv63DlleiJPIk3x/waves22.gif)
+  
 <details>
   <summary>about me</summary><br>
   
