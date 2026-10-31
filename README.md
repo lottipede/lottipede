@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://file.garden/aVv63DlleiJPIk3x/waves22.gif)
+𓆝.　 ۫ ·
   
 <details>
   <summary>about me</summary><br>
