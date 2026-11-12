@@ -1,6 +1,6 @@
 <div align="center">
   
-𓆝.　 ۫ ·
+![](https://file.garden/aVv63DlleiJPIk3x/Pi7_GIF_CMP.gif)
   
 <details>
   <summary>about me</summary><br>
